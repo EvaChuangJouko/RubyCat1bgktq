@@ -1,1 +1,0 @@
-# RubyCat1bgktq
